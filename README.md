@@ -1,2 +1,2 @@
 # My-first-Repository
-My first day was college was cery Amaizing .
+My first day was college was very Amaizing .
